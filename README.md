@@ -1,3 +1,4 @@
+<img width="704" height="535" alt="57 Sem Título_20260226085311" src="https://github.com/user-attachments/assets/9a313582-d0e3-49b6-8c60-7d672f90b244" />
 # site-psicanalista-tatiane-souza
 Site profissional de Psicanálise Clínica e Terapias Integrativas para Tatiane Souza. Design elegante, responsivo e focado em acolhimento ao paciente.
 Tatiane Souza | Psicanalista Clínica 

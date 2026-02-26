@@ -14,3 +14,24 @@ Tatiane Souza | Psicanalista Clínica
 
 ​Desenvolvido com carinho para Tatiane Souza.
 
+📱 Projetos freelancers ou propostas de trabalho em empresas de tecnologia.
+Entre em contato agora:
+LinkedIn: Meu Perfil Profissional 
+💻🖥⌨
+https://www.linkedin.com/in/tatiane-nascimento-68b0622bb?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+
+Portfólio no GitHub: Confira meus outros projetos
+🖥💻
+https://github.com/tatiane347
+Visite o site Ao Vivo 
+📺📺
+https://tatiane347.github.io/site-psicanalista-tatiane-souza/
+<img width="720" height="1353" alt="49 Sem Título_20260226083002" src="https://github.com/user-attachments/assets/86313a77-32a6-4266-a325-8cec15c98529" />
+<img width="720" height="1371" alt="48 Sem Título_20260226082855" src="https://github.com/user-attachments/assets/0a390041-f873-43bf-8ab8-8d2215fc1e01" />
+<img width="720" height="1286" alt="47 Sem Título_20260226082715" src="https://github.com/user-attachments/assets/c6a4b457-c1f6-4487-91f7-9a5c8501c4b2" />
+
+WhatsApp Direto: Clique aqui para conversar 📞📱
+Converse com Tatiane Souza/Dev & Business no WhatsApp: https://wa.me/5511910526709
+
+Transformando código em soluções de negócio.
+Desenvolvido com ❤️ por Tatiane Souza
